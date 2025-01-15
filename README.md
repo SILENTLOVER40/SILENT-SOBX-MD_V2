@@ -89,17 +89,17 @@ src="https://cardivo.vercel.app/api?name=SILENT-SOBX-MD-V2&description=🥂❤�
 
 ### <br> ❖ FOR SUPPORT ❖
 
-**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME SILENT✠LOVER⁴³²࿐➺`**
+**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME Madni Social Media࿐➺`**
 
 -------
 
 <p align="center">
-  <a href="https://wa.me/+923096287432?text=*ᴀsʟᴀᴍ-ᴜ-ᴀʟᴀɪᴋᴜᴍ+sɪʟᴇɴᴛʟᴏᴠᴇʀ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+sɪʟᴇɴᴛ-sᴏʙx-ᴍᴅ+ʀᴇᴘᴏ..⁴³²*" target="_blank">
+  <a href="https://wa.me/+923045549680?text=*ᴀsʟᴀᴍ-ᴜ-ᴀʟᴀɪᴋᴜᴍ+sɪʟᴇɴᴛʟᴏᴠᴇʀ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+sɪʟᴇɴᴛ-sᴏʙx-ᴍᴅ+ʀᴇᴘᴏ..⁴³²*" target="_blank">
     <img alt="whatsapp" src="https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 -----------    
 
-`✠ IF YOU WANT MORE ABOUT SILENT-SOBX-MD WHATSAPP BOT :-NEW UPDATED NEW CMDS SO JOIN OUR WHATSAPP GROUP FOR MORE INFORMATION CLICK THIS RED BUTTON 🔳 AND JOIN THE GROUP ✠`
+JOIN THE GROUP ✠`
 
 ---------
 
@@ -293,7 +293,7 @@ jobs:
 
 -----------
 
-***⚠️THANKS FOR USING SILENT-SOBX-MD WHATSAPP BOT IF U HAVE ANY PROBLEM YOU CAN CONTECT ME NOTE SILENT-SOBX-MD A ANTIBAN WHATSAPP BOT BUT IF YOUR WHATSAPP ACCOUNT BANNED THEN I'M NO RESPONSE ABLE THANKYOU BY SILENTLOVER432 KING OF WHATSAPP♥️☣️🥂***
+
 
 ------------
 
