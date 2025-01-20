@@ -19,7 +19,7 @@
 ------------
 
 <img align="center" height="auto"
-src="https://cardivo.vercel.app/api?name=SILENT-SOBX-MD-V2&description=🥂❤️🔐THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20SILENT%20LOVER%20432%20KING%20OF%20KINGS%20OWNER%20SILENT%20LOVER%20AND%20SOBIA%20BUTT%20MANGER%20AND%20BUG%20FINDER%20DARKDEVIL⁷¹⁹🖤🔥🔞&image=https://i.ibb.co/QvGkkd0/Manul-Ofc-X.jpg?v=4&backgroundColor=%23ecf0f1&github=SILENTLOVER40&pattern=leaf&colorPattern=%23eaeaea"/>
+src="https://cardivo.vercel.app/api?name=SILENT-SOBX-MD-V2&description=🥂❤️🔐THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20SILENT%20LOVER%20432%20KING%20OF%20KINGS%20OWNER%20SILENT%20LOVER%20AND%20SOBIA%20BUTT%20MANGER%20AND%20BUG%20FINDER%20DARKDEVIL⁷¹⁹🖤🔥💀&image=https://i.ibb.co/QvGkkd0/Manul-Ofc-X.jpg?v=4&backgroundColor=%23ecf0f1&github=SILENTLOVER40&pattern=leaf&colorPattern=%23eaeaea"/>
 
 <br>
 
